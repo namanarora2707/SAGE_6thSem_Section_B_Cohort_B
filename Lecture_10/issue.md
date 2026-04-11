@@ -1,0 +1,1 @@
+Light Cut off and doubts solved
